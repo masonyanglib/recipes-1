@@ -17,3 +17,9 @@
 5. Remove asparagus from steamer, shake to drain water, and arrange on serving plate.
 6. Drizzle the soy sauce and the sesame oil over the asparagus.
 7. Sprinkle with the sesame seeds and give a very light sprinkle with the Kosher salt.
+
+**Notes, tips, variations**
+
+* One way to gauge the best place to cut an asparagus spear is to gently grasp each end and bend the spear. The point at which is begins to break is where the stem begins to become tougher.
+
+* Gomasio is a Japanese seasoning made with sesame seeds and salt. I obtain mine at a local health food store. It can also be spelled Gomashio.
